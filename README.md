@@ -1,1 +1,3 @@
 # seriusly-taps
+
+Serios vicifitudes sobre imagen y marca Descripción Educación cripto y estrategias de finanzas descentralizadas en el mundo cripto.  Nada de lo que comento es ningún consejo de inversión ni soy ningún asesor financiero. Realizad vuestra propia investigación y tomad vuestras propias conclusiones.   Si tienes dudas treebtc@gmail.com  Quiere decir que ni somos una chip coin de tres borrachos ni tres borrachos programando una shitcoin, si bien esto porque en la licencia tres explícitamente pone a cuanto fijar el barril de mega billion dots en la taberna. Como empresa de software, sin desmerecer no queremos volver a programar wordpress gratis.
